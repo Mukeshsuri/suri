@@ -1,4 +1,0 @@
-mukesh 
-suri
-sammy
-joseph
